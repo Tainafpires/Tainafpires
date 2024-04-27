@@ -7,5 +7,5 @@ desde então venho aprendendo e me interessando cada vez mais por esse mundo. Pa
  visto que muito se tem a aprender e estudar, mas é através da força de vontade que se pode chegar além do nosso propósito.
 - 🌱 Atualmente estou aprendendo sobre lógica de programação, como executar vários tipos de algoritmos dentro dos respectivos programas, como por exemplo no VisualG, baseado em uma linguagem parecida com o portugol.
 - 💞️ Pretendo me capacitar cada vez mais e absorver o máximo de conhecimento possível, vencendo todos os obstáculos, para que no futuro eu me torne uma profissional altamente qualificada!
-- 📫 Vocês conseguem entar em contato comigo através do meu e-mail, tainafpires@icloud.com, e para conhecerem um pouco mais sobre mim, podem acessar também o meu instagram, @tainafpires!! 
+- 📫 Vocês conseguem entrar em contato comigo através do meu e-mail, tainafpires@icloud.com, e para conhecerem um pouco mais sobre mim, podem acessar também o meu instagram, @tainafpires!! 
 
