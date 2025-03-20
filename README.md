@@ -1,4 +1,4 @@
-- 👋 Olá, meu nome é Tainá, tenho 23 anos e sou de Santa Luzia MG.
+- 👋 Olá, meu nome é Tainá, tenho 24 anos e sou de Santa Luzia MG.
 Atualmente trabalho como modelo, há quase 5 anos, ingressei no curso de comissária de bordo, pouco tempo depois de concluí-lo, percebi que não era a área que eu realmente gostaria de seguir.
 Sempre tive o sonho de empreender, trabalhar para mim mesma, mas nunca soube com o que exatamente e nem por onde começar. Mas hoje, principalmente depois de ter iniciado no curso de desenvolvimento, já consigo ter
 uma visão completamente diferente sobre isso, visto que consigo conciliar as duas coisas, considerando que irá me possibilitar oportunidades maiores e melhores!
